@@ -10,6 +10,8 @@ Nuestro objetivo principal es crecer como comunidad para poder llegar a mas pers
 
 https://t.me/foss_rd
 
+https://fossrd.com
+
 
 
 
